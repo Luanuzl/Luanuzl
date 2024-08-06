@@ -9,3 +9,5 @@
 - ### Entre em contato por:
 
 - 00001120917281sp@al.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/nAMuwsQmPecAAAAC/clash-royale.gif)
